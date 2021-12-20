@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @1956sworld
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning division 
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me snapchat; aprimdavidd
